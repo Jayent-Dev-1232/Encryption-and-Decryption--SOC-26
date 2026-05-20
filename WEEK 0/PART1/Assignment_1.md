@@ -16,6 +16,7 @@ Appromimate time to reach from one city part to east:
 + West to east :40 min via forest and 1 hr 45 min via long route
 + south to east :30 min
 
+Victim: Teacher, mid 40s, Joined this occupation more than decade ago and had no rivalries.
 You move on to the Family now- 
 
 Any personal problems with someone? 
@@ -24,7 +25,7 @@ No, even all relatives live far away. He was a teacher why would he have any iss
 
 What was your Husband doing in that desolate area?
 
-It was his favourite location to enjoy, no one knew it, he said he enjoys with his close friend talking and drinking, but I don't know who his friend w as, mostly his colleagues, Since he would talk with others much.
+It was his favourite location to enjoy, no one knew it, he said he enjoys with his close friend talking and drinking, but I don't know who his friend w as, mostly his colleagues, Since he would talk with others much. He doesn't trust people easily eiter, his close friend would have been friend since long.
 
 Close friend, huh. well, Thank you for your time, I am sorry for your loss.
 
