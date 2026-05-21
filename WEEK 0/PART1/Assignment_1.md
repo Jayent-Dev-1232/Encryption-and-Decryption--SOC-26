@@ -33,7 +33,7 @@ Close friend, huh. well, Thank you for your time, I am sorry for your loss.
 You now collect the information of the people : https://drive.google.com/file/d/1JEVPBEmde_qflPzY6zWEzhwL7w0jGxbZ/view?usp=sharing
 
 Your suspection grows more towards the school teachers and you ask every teacher what they were doing during that time and their family members. All the family 
-members of each family confirm that the every teacher was at home around 10:15PM more or less. 
+members of each family confirm that the every teacher was at home around 10PM more or less. 
 
 You still get the Teacher information: https://drive.google.com/file/d/1IzVvDn60L5-1M9sHdOcV8OsDQJrYpLxG/view?usp=sharing
 
